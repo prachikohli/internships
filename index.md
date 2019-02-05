@@ -12,7 +12,6 @@ Law.
 2. Managed miscellaneous regulatory and compliance matters of companies before various
 governmental organizations.
 
-## Client management and communication.
 ## DSK Legal, Law Offices
 ### New Delhi, India
 ### February 2016-April 2016
