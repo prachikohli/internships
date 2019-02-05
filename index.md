@@ -37,8 +37,7 @@ submissions before the Income Tax Authorities.
 ### New Delhi, India
 ### March 2015- April 2015
 * Extensive research on penalty provisions in case of search and seizure; and
-* Preparing case briefs and researching on various important sections of Income Tax Act,
-1961.
+* Preparing case briefs and researching on various important sections of Income Tax Act, 1961.
 
 ## RRA TaxIndia
 ### New Delhi, India
